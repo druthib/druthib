@@ -1,4 +1,4 @@
-Cybersecurity Engineer
+<b>Cybersecurity Engineer</b>
 Computer Engineering student specializing in Cyber Security  with an aptitude for problem-solving, programming, and great interest in Cyber Security. Experienced in working efficiently in groups as well as individually. Excited to work for an IT firm and gain real-world experience in my field of study.
 
 EDUCATION
